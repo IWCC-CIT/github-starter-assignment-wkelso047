@@ -1,0 +1,1 @@
+I have read through the Github Starter assignment and am familiar with how to use Github, I will ask my instructor for any assistance before assignments are due.
